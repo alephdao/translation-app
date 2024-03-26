@@ -1,0 +1,77 @@
+CAPÍTULO I
+
+Peter se abre paso
+
+TODOS LOS NIÑOS, EXCEPTO UNO, crecen. Pronto saben que crecerán, y la forma en que Wendy lo supo fue así. Un día, cuando tenía dos años, estaba jugando en un jardín, y arrancó otra flor y corrió con ella hacia su madre. Supongo que debió lucir encantadora, porque la Sra. Darling puso la mano en su pecho y exclamó: "¡Oh, por qué no puedes permanecer así para siempre!" Eso fue todo lo que pasó entre ellas sobre el tema, pero desde entonces Wendy supo que debía crecer. Siempre se sabe después de los dos años. Dos es el principio del fin.
+
+Por supuesto, vivían en la casa número 14, y hasta que llegó Wendy, su madre era la principal. Era una dama encantadora, con una mente romántica y una boca tan dulcemente burlona. Su mente romántica era como las cajas diminutas, una dentro de la otra, que vienen del enigmático Oriente, por más que descubras siempre hay una más; y en su boca dulcemente burlona había un beso que Wendy nunca podía obtener, aunque estaba ahí, perfectamente visible en la esquina derecha.
+
+La forma en que el Sr. Darling la conquistó fue así: los muchos caballeros que habían sido niños cuando ella era una niña descubrieron al mismo tiempo que la amaban, y todos corrieron a su casa a proponerle matrimonio, excepto el Sr. Darling, que tomó un taxi y se adelantó, y así la obtuvo. Lo obtuvo todo de ella, excepto la caja más interna y el beso. Nunca supo de la caja, y con el tiempo dejó de intentar conseguir el beso. Wendy pensaba que Napoleón podría haberlo conseguido, pero puedo imaginarlo intentándolo, y luego yéndose enfadado, golpeando la puerta.
+
+El Sr. Darling solía presumirle a Wendy que su madre no solo lo amaba sino que lo respetaba. Él era uno de esos hombres profundos que saben sobre acciones y participaciones. Por supuesto que nadie lo sabe realmente, pero él parecía saberlo bastante bien, y a menudo decía que las acciones subían y las participaciones bajaban de una manera que habría hecho que cualquier mujer lo respetara.
+
+La Sra. Darling se casó de blanco, y al principio mantuvo las cuentas perfectamente, casi con alegría, como si fuera un juego, no faltaba ni un solo bledo; pero poco a poco se le escaparon enteros repollos, y en lugar de ellos había dibujos de bebés sin rostros. Los dibujaba cuando debía estar sumando. Eran suposiciones de la Sra. Darling.
+
+Wendy vino primero, luego John, luego Michael.
+
+Durante una o dos semanas después de la llegada de Wendy, fue dudoso si podrían mantenerla, ya que era otra boca que alimentar. El Sr. Darling estaba terriblemente orgulloso de ella, pero era muy honorable, y se sentaba al borde de la cama de la Sra. Darling, sosteniendo su mano y calculando gastos, mientras ella lo miraba suplicante. Ella quería arriesgarse, pase lo que pase, pero ese no era su estilo; su estilo era con un lápiz y un trozo de papel, y si ella lo confundía con sugerencias, él tenía que empezar de nuevo desde el principio.
+
+"No me interrumpas ahora", le suplicaba.
+
+"Tengo una libra y diecisiete aquí, y dos chelines y seis peniques en la oficina; puedo dejar de tomar café en la oficina, digamos diez chelines, haciendo dos libras nueve chelines y seis peniques, con tus dieciocho y tres peniques hace tres libras nueve chelines siete peniques, con cinco ceros en mi talonario de cheques hace ocho libras nueve chelines siete peniques, ¿quién se está moviendo? —ocho libras nueve chelines siete peniques, suma y lleva siete—no hables, mi tesoro—y la libra que prestaste a ese hombre que vino a la puerta—silencio, niña—suma y lleva niña—¡ahora lo has hecho!—¿dije ocho nueve siete? sí, dije ocho nueve siete; la pregunta es, ¿podemos intentarlo durante un año con ocho nueve siete?"
+
+"Por supuesto que podemos, George", exclamó ella. Pero estaba predispuesta a favor de Wendy, y él era realmente el personaje más grandioso de los dos.
+
+"Recuerda la paperas", la advirtió casi amenazantemente, y se marchó de nuevo. "Paperas una libra, eso es lo que he anotado, pero supongo que será más bien como treinta chelines —no hables—sarampión cinco, sarampión alemán media guinea, hace dos quince seis—no menees el dedo—tosferina, digamos quince chelines"—y así sucesivamente, y se sumaba de manera diferente cada vez, pero al fin Wendy salió adelante, con las paperas reducidas a doce seis, y los dos tipos de sarampión tratados como uno solo.
+
+Había la misma emoción por Juan, y Miguel incluso estuvo al borde de ser rechazado; pero a ambos los aceptaron, y pronto, podrían haberlos visto a los tres yendo en fila a la escuela de Kindergarten de la señorita Fulsom, acompañados por su niñera.
+
+A la señora Darling le encantaba tener todo en su lugar, y al señor Darling le apasionaba ser exactamente como sus vecinos; así que, por supuesto, tenían una niñera. Como eran pobres, debido a la cantidad de leche que los niños bebían, esta niñera era una perrita Terranova muy formal, llamada Nana, que no había pertenecido a nadie en particular hasta que los Darling la contrataron. Sin embargo, siempre había pensado que los niños eran importantes, y los Darling se habían hecho amigos de ella en los Jardines de Kensington, donde pasaba la mayor parte de su tiempo libre espiando en los cochecitos, y era muy odiada por las descuidadas niñeras a quienes seguía a sus hogares y de quienes se quejaba a sus señoras. Resultó ser un verdadero tesoro como niñera. Era muy meticulosa en la hora del baño, y se levantaba en cualquier momento de la noche si uno de sus cargos hacía el menor ruido. Por supuesto, su caseta estaba en la guardería. Tenía un don para saber cuándo una tos era algo con lo que no se podía tener paciencia y cuándo necesitaba un pañuelo alrededor de la garganta. Creía hasta su último día en los remedios tradicionales como la hoja de ruibarbo, y hacía sonidos de desprecio por toda esta charla de gérmenes, y así sucesivamente. Era una lección de corrección verla escoltando a los niños a la escuela, caminando con solemnidad a su lado cuando se portaban bien, y empujándolos de regreso a la fila si se desviaban. En los días en que John tenía que jugar al fútbol, nunca se olvidaba de su suéter, y solía llevar un paraguas en la boca por si llovía. Hay una habitación en el sótano de la escuela de la señorita Fulsom donde las niñeras esperan. Se sentaban en bancos, mientras Nana se acostaba en el suelo, pero esa era la única diferencia. Intentaban ignorarla como si fuera de un estatus social inferior al suyo, y ella despreciaba sus conversaciones triviales. Se resentía de las visitas a la guardería de los amigos de la señora Darling, pero si venían, primero le quitaba el mandil a Miguel y lo ponía en el que tenía trenzas azules, y arreglaba a Wendy y peinaba el cabello de Juan.
+
+Ninguna guardería podría haber sido manejada más correctamente, y el señor Darling lo sabía, sin embargo, a veces se preguntaba ansiosamente si los vecinos hablaban.
+
+Tenía que considerar su posición en la ciudad.
+
+Nana también le preocupaba de otra manera. A veces tenía la sensación de que ella no lo admiraba. "Sé que te admira muchísimo, George," le aseguraba la señora Darling, y luego hacía señas a los niños para que fueran especialmente amables con papá. Seguían bailes encantadores, en los que a veces se permitía unirse a la única otra criada, Liza. ¡Qué diminuta se veía con su larga falda y su gorra de doncella, aunque había jurado, al ser contratada, que nunca vería los diez años de nuevo! ¡La alegría de esas payasadas! Y la más alegre de todas era la señora Darling, que giraba tan salvajemente que lo único que se veía de ella era el beso, y luego si te hubieras lanzado hacia ella, lo hubieras conseguido. Nunca hubo una familia más sencilla y feliz hasta la llegada de Peter Pan.
+
+La Sra. Darling escuchó por primera vez de Peter cuando estaba ordenando las mentes de sus hijos. Es la costumbre nocturna de toda buena madre, después de que sus hijos están dormidos, rebuscar en sus mentes y poner las cosas en orden para la mañana siguiente, reubicando en sus lugares adecuados los muchos artículos que han vagado durante el día. Si pudieras mantenerte despierto (pero por supuesto que no puedes) verías a tu madre haciendo esto, y te resultaría muy interesante observarla. Es bastante parecido a ordenar cajones. La verías de rodillas, supongo, deteniéndose con humor en algunos de tus contenidos, preguntándose de dónde demonios habías sacado esa cosa, haciendo descubrimientos dulces y no tan dulces, presionando esto contra su mejilla como si fuera tan agradable como un gatito, y guardando apresuradamente aquello fuera de la vista. Cuando despiertas por la mañana, las travesuras y pasiones malvadas con las que te acostaste han sido dobladas pequeñas y colocadas en el fondo de tu mente, y en la parte superior, bellamente aireados, se despliegan tus pensamientos más bonitos, listos para que los adoptes.
+
+No sé si alguna vez has visto un mapa de la mente de una persona. A veces los médicos dibujan mapas de otras partes de ti, y tu propio mapa puede volverse intensamente interesante, pero intenta que intenten dibujar un mapa de la mente de un niño, que no solo está confuso, sino que todo el tiempo continúa girando. Hay líneas zigzagueantes en él, como la temperatura en una tarjeta, y probablemente sean caminos en la isla, porque el País de Nunca Jamás es siempre más o menos una isla, con asombrosas salpicaduras de color aquí y allá, arrecifes de coral, y naves con aspecto pícaro en el horizonte, y salvajes y guaridas solitarias, y gnomos que son principalmente sastres, y cuevas por las que corre un río, y príncipes con seis hermanos mayores, y una choza que rápidamente se desmorona, y una señora anciana muy pequeña con una nariz aguileña. Sería un mapa sencillo si eso fuera todo, pero también hay primer día de escuela, religión, padres, el estanque redondo, trabajos con aguja, asesinatos, ahorcamientos, verbos que llevan dativo, día de pudín de chocolate, colocarse aparatos ortopédicos, decir noventa y nueve, tres peniques por sacarte un diente tú mismo, y así sucesivamente, y estos son parte de la isla o son otro mapa que se muestra a través, y todo es bastante confuso, especialmente porque nada permanecerá quieto.
+
+Por supuesto, los Países de Nunca Jamás varían bastante. El de John, por ejemplo, tenía una laguna con flamencos volando sobre ella, en la que John estaba disparando, mientras que Michael, que era muy pequeño, tenía un flamenco con lagunas volando sobre él. John vivía en un barco al revés en las dunas, Michael en una choza, Wendy en una casa de hojas hábilmente cosidas juntas. John no tenía amigos, Michael tenía amigos por la noche, Wendy tenía un lobo mascota abandonado por sus padres, pero en general los Países de Nunca Jamás tienen un parecido familiar, y si se mantuvieran quietos en fila podrías decir de ellos que tienen la nariz del otro, y así sucesivamente. En estas costas mágicas, los niños jugando siempre están desembarcando sus coracles. Nosotros también hemos estado allí; todavía podemos escuchar el sonido de las olas, aunque ya no aterrizaremos más.
+
+De todas las islas deleitables, el País de Nunca Jamás es el más acogedor y compacto, no grande y extenso, ya sabes, con distancias tediosas entre una aventura y otra, sino apretado. Cuando juegas con él durante el día con sillas y manteles, no es alarmante en absoluto, pero en los dos minutos antes de dormir se vuelve casi real. Por eso existen las luces nocturnas.
+
+Ocasionalmente, en sus travesías por las mentes de sus hijos, la Sra. Darling encontraba cosas que no podía entender, y de todas ellas, la más desconcertante era la palabra Peter. No conocía a ningún Peter, y sin embargo él estaba aquí y allá en las mentes de John y Michael, mientras la de Wendy comenzaba a estar llena de él. El nombre resaltaba en letras más audaces que cualquiera de las otras palabras, y mientras la Sra. Darling contemplaba, sentía que tenía una apariencia extrañamente engreída.
+
+"Sí, es bastante engreído," Wendy admitió con pesar. Su madre la había estado interrogando.
+
+"Pero, ¿quién es él, mi cariño?"
+
+"Es Peter Pan, ya sabes, madre."
+
+Al principio, la Sra. Darling no lo sabía, pero después de reflexionar sobre su infancia, simplemente recordó a un Peter Pan del que se decía que vivía con las hadas. Había historias extrañas sobre él, como que cuando los niños morían él los acompañaba parte del camino, para que no tuvieran miedo. Ella había creído en él en ese momento, pero ahora que estaba casada y llena de cordura dudaba bastante si existía tal persona.
+
+"Además," le dijo a Wendy, "ya estaría adulto para este tiempo."
+
+"Oh no, él no ha crecido," aseguró Wendy con confianza, "y es justo de mi tamaño." Se refería a que él era de su tamaño tanto en mente como en cuerpo; no sabía cómo lo sabía, simplemente lo sabía.
+
+La Sra. Darling consultó al Sr. Darling, pero él sonrió burlonamente. "Marca mis palabras," dijo, "es alguna tontería que Nana les ha metido en la cabeza; simplemente el tipo de idea que tendría un perro. Déjalo así, y se olvidará."
+
+Pero no se olvidaría, y pronto el problemático niño sorprendió bastante a la Sra. Darling.
+
+Los niños tienen las más extrañas aventuras sin verse perturbados por ellas. Por ejemplo, pueden recordar mencionar, una semana después de que ocurriera el evento, que cuando estaban en el bosque se encontraron con su difunto padre y jugaron con él. Fue de esta manera casual que Wendy una mañana hizo una revelación inquietante. Algunas hojas de un árbol se encontraron en el suelo de la guardería, que ciertamente no estaban allí cuando los niños se acostaron, y la Sra. Darling se preguntaba sobre ellas cuando Wendy dijo con una sonrisa tolerante:
+
+"¡Creo que es ese Peter de nuevo!" 
+
+"¿Qué quieres decir, Wendy?"
+
+"Es tan travieso de él no limpiarse," Wendy dijo, suspirando. Era una niña ordenada.
+
+Explicó de manera bastante de hecho que pensaba que a veces Peter venía a la guardería durante la noche y se sentaba al pie de su cama y tocaba su flauta para ella. Desafortunadamente ella nunca despertaba, así que no sabía cómo lo sabía, simplemente lo sabía.
+
+Mientras ella dormía, tuvo un sueño. Soñó que el País de Nunca Jamás había llegado demasiado cerca y que un extraño niño había logrado atravesar desde allí. No la alarmó, pues pensó que lo había visto antes en los rostros de muchas mujeres que no tienen hijos. Tal vez se pueda encontrar en los rostros de algunas madres también. Pero en su sueño él había rasgado el velo que oculta el País de Nunca Jamás, y vio a Wendy, a Juan y a Miguel mirando a través del agujero.
+
+El sueño por sí solo hubiera sido una bagatela, pero mientras soñaba, la ventana de la guardería se abrió de golpe y un niño cayó al suelo. Estaba acompañado por una extraña luz, no más grande que tu puño, que se movía por la habitación como si estuviera viva, y creo que fue esta luz la que despertó a la Sra. Darling.
+
+Se incorporó con un grito y vio al niño, y de alguna manera supo de inmediato que era Peter Pan. Si tú o yo o Wendy hubiéramos estado allí, habríamos visto que se parecía mucho al beso de la Sra. Darling. Era un niño encantador, vestido con hojas de esqueleto y los jugos que brotan de los árboles, pero lo más cautivador de él era que tenía todos sus dientes de leche. Cuando vio que era una adulta, apretó sus pequeñas perlas hacia ella.
